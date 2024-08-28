@@ -1,4 +1,4 @@
-# Transformation of European societies
+# Transformation of European Societies
 
 The transformation of European societies from the feudal, unequal, and often brutal systems of the past to the more civilized, enlightened, and developed nations we see today was a long and complex process influenced by numerous factors. Here are some key elements that contributed to this significant transformation:
 
